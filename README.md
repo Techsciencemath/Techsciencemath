@@ -1,5 +1,3 @@
-- hey I’m just a curious human 👀....
-- interested in everything about technology ..
 -  I’m currently learning game development and several more programming languages (i just learn everything about technology that interests me🌱).
 - ✨ contact me on instagram if you want to collaborate✨
 - #instagram: https://instagram.com/w.h.y_xplor
